@@ -12,5 +12,5 @@ https://smart-grid-gems-40.lovable.app/
 
 
 
-Projekt od pomysły pPana Profesora Orłowskiego, fajna sprawa 
+Projekt od pomysłu pPana Profesora Orłowskiego, fajna sprawa 
 https://bike-map-amsterdam-70.lovable.app/
